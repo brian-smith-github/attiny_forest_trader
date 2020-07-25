@@ -9,4 +9,4 @@ that can earn big mnoey. (the slow flashing location on the island map)
 
 Avoid crashing your bike on your journeys as repairs are expensive.
 
-Updade your bike as you earn more money.
+Upgrade your bike as you earn more money.
